@@ -404,6 +404,7 @@ corriente. Cuando todos estos elementos están en uso, ¿cuánta corriente hay e
 
 4. Video
 
+https://youtu.be/T1-QJJe9aN8
 
 5. Conclusiones
 
